@@ -1,1 +1,1 @@
-이름:Chaehwan Lee
+Chaehwan Lee
